@@ -1,4 +1,4 @@
-#  
+#  the strongest battlegrounds no-ban Scripts offers the most advanced the strongest battlegrounds Script, with auto-farm and no cooldown. Perfect for
 
 
 
